@@ -4,7 +4,7 @@
 ingin membeli script? cukup chat contact di bawah! selain itu dipastikan slone!!:
 
 
-**kalo ngintip wajib follow media sosial gw**
+**kalo dah ngintip wajib follow media sosial gw**
 ## 🌐 My Social Media
 - [Website](https://praiofficial-websitestore.netlify.app)  
 - [TikTok](https://tiktok.com/@anamvx_)  
